@@ -8,4 +8,4 @@ Three Fun Facts about me:
 
 1. I've been a dog walker for eight years.
 2. I collect 50p pieces.
-3. When I was little a competitor swimmer swam over me, so I now have 2 bent fingers...
+3. I have a large tattoo on my thigh.
